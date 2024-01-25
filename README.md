@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **ekinto88@gmail.com or aliaksandr.trafimchyk@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
